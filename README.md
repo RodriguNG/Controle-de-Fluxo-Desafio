@@ -1,2 +1,2 @@
 Feito por RodriguNG
-Obrigao pela aula!
+Obrigado pela aula!
